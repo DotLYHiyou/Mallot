@@ -1,2 +1,2 @@
 # Mallot
-A Flash Player emulator that I made.
+A Flash Player emulator that I will make, currently empty.
