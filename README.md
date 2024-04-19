@@ -1,2 +1,26 @@
-# Mallot
-A Flash Player emulator that I will make in Rust or Go, currently empty.
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
+# That isnt freakin funny bro
